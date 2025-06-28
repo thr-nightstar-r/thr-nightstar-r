@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @thr-nightstar-r RAJ VERMA<br>👀 I’m interested in FULL STACK DEV, CYBERSECURITY, AI<br>🌱 I’m currently learning SOME COMPUTER LANGUAGES TO IMPROVE MY SKILLS<br>💞️ I’m looking to collaborate ...<br>📫 How to reach me rajv122554@gmail.com<br>😄 Pronouns: he\his<br>⚡ Fun fact: MY GOAL IS TO LEARN AS MUCH AS POSSIBLE IN COMPUTER SCIENCE FIELD
+👋 Hi, I’m @thr-nightstar-r RAJ VERMA<br>👀 I’m interested in FULL STACK DEV, CYBERSECURITY, AI<br>🌱 I’m currently learning SOME COMPUTER LANGUAGES TO IMPROVE MY SKILLS<br>💞️ I’m looking to collaborate ...<br>📫 How to reach me rajv122554@gmail.com<br>😄 Pronouns: he\his<br>⚡ Fun fact: MY GOAL IS TO LEARN AS MUCH AS POSSIBLE IN COMPUTER SCIENCE FIELD 
 
 
 ## 🌐 Socials:
